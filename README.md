@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sven4692
-- 👀 I’m interested in women
+- 👀 I’m interested in probably nothing
 - 🌱 I’m currently learning how to programm
 - 💞️ I’m looking to collaborate on peop;e
 - 📫 How to reach me just speak to me
